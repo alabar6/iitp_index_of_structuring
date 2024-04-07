@@ -1,0 +1,1 @@
+# ittp_index_of_structuring
